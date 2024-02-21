@@ -19,7 +19,6 @@
 
 - 📫 How to reach me **https://linktr.ee/mabdulzaki**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
